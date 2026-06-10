@@ -1,4 +1,3 @@
-# Islam Sultanov
 **Senior DevOps Engineer**
 
 Baku, Azerbaijan · +994 50 276 57 66 · Islam.Sultanov@outlook.com
