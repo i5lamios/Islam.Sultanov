@@ -1,6 +1,6 @@
 **Senior DevOps Engineer**
 
-Baku, Azerbaijan · +994 50 276 57 66 · Islam.Sultanov@outlook.com
+12.09.1992 Baku, Azerbaijan · +994 50 276 57 66 · Islam.Sultanov@outlook.com
 
 ## Profile
 
